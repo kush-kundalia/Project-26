@@ -1,0 +1,1 @@
+0.5 cup butter , 1 cup white sugar , 2 large eggs , 1 teaspoon vanilla extract , 1/3 cup unsweetened cocoa powder , 1/2 cup all purpose flour / refined flour / maida , 1/4 teaspoon salt , 1/4 teaspoon baking powder , vanilla icecream (optional for topping);
